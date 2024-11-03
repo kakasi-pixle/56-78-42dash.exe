@@ -14,7 +14,7 @@
 No Need To Ask Wifi Password, HACK it..! This Cyber Security Tool, Will Hack For You Any Wifi-Password..!
 
 
-[![asciicast](https://asciinema.org/a/362908.svg)](https://asciinema.org/a/362908)
+0
 
 
 ## Feutures and Contains :
@@ -92,7 +92,7 @@ No Need To Ask Wifi Password, HACK it..! This Cyber Security Tool, Will Hack For
 
  ### if you like my work, Buy me a Cup of Coffee PhonePay/PayTm/GPAy 9768367597
 
-### - [Whats App chat](https://wa.me/+919768367597)
+### - [Whats App chat](https://wa.me/+201550680822)
 
 ### - [Instagram](https://www.instagram.com/ankit_kanojiiya/)
 
